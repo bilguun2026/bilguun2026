@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @bilguun1026
+- 👀 I’m interested in everything
+- 🌱 I’m currently learning ML
+- 📫 How to reach me ekhbil2026@gmail.com
